@@ -1,4 +1,4 @@
 # Linkedin
 
 
-#GELİŞRİRİLMEKTEDİR
+#GELİŞTİRME AŞAMASINDA
